@@ -12,6 +12,6 @@ Utilizo esse espaço para compartilhamento dos meus projetos desenvolvidos;
 
 @mariazeri1718gmail.com
 
-![]()
-
-https://tenor.com/pt-BR/view/luna-lovegood-looking-smiling-gif-18781181
+![](https://media1.tenor.com/m/VkKB9OPrWpUAAAAC/luna-lovegood-looking.gif
+)
+https://media1.tenor.com/m/VkKB9OPrWpUAAAAC/luna-lovegood-looking.gif
